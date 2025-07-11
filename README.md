@@ -20,4 +20,4 @@
 结语  
 观看日本AV再不复杂，优质平台的存在让每一次点击都成为舒适享受。安全流畅、内容丰富的平台正是当代观众所需。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link]( https://github.com/sisi40444/abcav12)</span>
